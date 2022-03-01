@@ -1,0 +1,1 @@
+- Web developer and financier
